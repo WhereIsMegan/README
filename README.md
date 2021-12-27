@@ -3,3 +3,5 @@
 16, England, UK
 -
 Favourite movie: Labyrinth & The Nightmare Before Christmas
+-
+Discord: TheLorax#6666
