@@ -4,4 +4,6 @@
 
 Favourite movie: Labyrinth & The Nightmare Before Christmas
 
+Yungblud & Oli Sykes <3
+
 Discord: TheLorax#6666
